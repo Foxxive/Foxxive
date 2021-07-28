@@ -1,0 +1,7 @@
+- Hello! I'm Foxxive!
+- I am a ROBLOX Developer and I may occasionally share some stuff here for you guys to look at!
+- I'm also an artist!
+- I am 16 years old!
+- 750+ Subs on YT
+- I'm a Furry
+- Have a nice day! <3
