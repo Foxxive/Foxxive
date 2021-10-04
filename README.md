@@ -1,3 +1,5 @@
-i make stuff
-
-he/they
+i'm a guy
+lazy programmer
+2D artist and graphics designer
+professional procrastinator 
+furry
